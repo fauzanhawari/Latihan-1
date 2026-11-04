@@ -1,3 +1,3 @@
 #latihan 1
-Nama:Fauzan Hawari
+Nama: Adit Kelutur
 Universitas Djuanda Bogor
